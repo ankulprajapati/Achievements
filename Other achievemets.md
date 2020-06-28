@@ -1,0 +1,11 @@
+  - Shashwat Singh https://github.com/SSingh087 has selected for Summer Internship at Max Planck Institute for Gravitational Physics (Albert Einstein Institute in Hannover), 2020. (Funded)
+  - Ankul Prajapati, Inter-University Centre for Astronomy and Astrophysics, Visiting Student-2019 under Dr Joydeep Bagchi, lead discoverer of Saraswati Supercluster. (Funded)
+  - Ankul Prajapati, Selected for a traineeship at Bhabha Atomic Research Centre, Mumbai, 2019.
+  - Shashwat Singh https://github.com/SSingh087, Summer fellow at Indian Institute of Technology, Indore, 2019.
+  - Aditya Gupta, Summer Internship at Indian Institute of Technology BHU, 2019.
+  - Amitesh Singh, Summer Internship at Indian Institute of Technology, Kharagpur, 2019.
+  - Ankit Nikum, Summer trainee at Indian Institute of Technology, Kharagpur, 2019.
+  - Rajat Singh, Summer trainee at Indian Institute of Technology, Kharagpur, 2019.
+  - Suyash Gaikwad, Winter Intern at Raman Research Institute, Bengaluru, 2019.  
+  - Ankul Prajapati, Cryogenic Center, Indian Institute of Technology Kharagpur, Summer Intern-2018 under Prof Parthsarthi Ghosh, worked on Semi-Cryogenic Rocket Engine project sponsored by ISRO. (Funded)
+  - Ankul Prajapati, Indian Academy of Science' course on Quantum Statistical Mechanics, 2017, Dr Deepak Dhar. (Funded)
